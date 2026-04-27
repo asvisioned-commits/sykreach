@@ -1,0 +1,1 @@
+# SykReach\nAnimated How It Works infographic
